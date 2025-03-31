@@ -8,7 +8,7 @@ Welcome to **Shilling Oil Private Limited**, your trusted source for premium vir
 Founded in **2022**, we specialize in **organic extra virgin coconut oils** crafted with excellence. With a range of **15+ premium products**, we are proud to be **trusted by customers** worldwide.
 
 ## 🛍️ Shop Our Products
-We offer a variety of coconut-based products, including:
+We offer a variety of coconut-based products, including: 
 - **Organic Extra Virgin Coconut Oil**
 - **Baby Care Massage Oil (With Wheat Germ Oil)**
 - **Dry Coconut Powder**
